@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @JIArb
+- 👀 I’m interested in learning code, crypto, economy, and btc.
+- 🌱 I’m currently learning everything.
+- 💞️ I’m looking to collaborate on anything that would help me to learn code...
+- 📫 How to reach me arbizujuani@gmail.com
